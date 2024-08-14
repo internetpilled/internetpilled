@@ -12,4 +12,4 @@
 
  𝗙𝗜𝗡𝗗 𝗠𝗘 𝗡𝗘𝗔𝗥 𝗧𝗛𝗘 𝗜𝗡𝗗𝗜𝗚𝗢 𝗣𝗔𝗥𝗞, 𝗢𝗦𝗖 𝗢𝗥 𝗥𝗢𝗕𝗟𝗢𝗫 𝗔𝗥𝗘𝗔 !!! ![MEOW](https://64.media.tumblr.com/3880f3927854174c150920828fbfc903/af5d09d7c42bd261-2b/s75x75_c1/33ffb1dd8b84d2b551d545d20a8581c1c4318691.gifv)
 
-<img src="![image](https://github.com/user-attachments/assets/9328356f-3d71-449a-8351-b2f3f8f1f8d7)" width="100" height="100">
+<img src="https://github.com/user-attachments/assets/9328356f-3d71-449a-8351-b2f3f8f1f8d7" width="100" height="100">
