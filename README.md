@@ -1,8 +1,11 @@
-❝ Am I just a toy to you, my love? ❞
+❝ 𝗔𝗺 𝗜 𝗷𝘂𝘀𝘁 𝗮 𝘁𝗼𝘆 𝘁𝗼 𝘆𝗼𝘂, 𝗺𝘆 𝗹𝗼𝘃𝗲? ❞
+
 ────────────────
-STAR / SEVEN ┆ HE/IT/SHE 
-✧₊⁺ 17 | DX'D DID SYSTEM ꒰ feel free to ask who's fronting <3 ꒱
 
- FIND ME NEAR THE INDIGO PARK, OSC OR ROBLOX AREA !!!
+𝗦𝗧𝗔𝗥 / 𝗦𝗘𝗩𝗘𝗡 ┆ 𝗛𝗘/𝗜𝗧/𝗦𝗛𝗘 
 
- WIP
+✧₊⁺ 𝟭𝟳 | 𝗗𝗫'𝗗 𝗗𝗜𝗗 𝗦𝗬𝗦𝗧𝗘𝗠 ꒰ 𝗳𝗲𝗲𝗹 𝗳𝗿𝗲𝗲 𝘁𝗼 𝗮𝘀𝗸 𝘄𝗵𝗼'𝘀 𝗳𝗿𝗼𝗻𝘁𝗶𝗻𝗴 <𝟯 ꒱
+
+ 𝗙𝗜𝗡𝗗 𝗠𝗘 𝗡𝗘𝗔𝗥 𝗧𝗛𝗘 𝗜𝗡𝗗𝗜𝗚𝗢 𝗣𝗔𝗥𝗞, 𝗢𝗦𝗖 𝗢𝗥 𝗥𝗢𝗕𝗟𝗢𝗫 𝗔𝗥𝗘𝗔 !!!
+
+ 𝗪𝗜𝗣
