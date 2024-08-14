@@ -1,6 +1,6 @@
 ❝ 𝗔𝗺 𝗜 𝗷𝘂𝘀𝘁 𝗮 𝘁𝗼𝘆 𝘁𝗼 𝘆𝗼𝘂, 𝗺𝘆 𝗹𝗼𝘃𝗲? ❞
 
-![DIVIDER](https://64.media.tumblr.com/af21fe775bde0d6c3af4cbdc52e0cbe4/227da40456c2f797-6d/s2048x3072/2ae52b3a684727a7ace299d01dc5d94c5534a3da.pnj =250x250)
+ <img src="https://64.media.tumblr.com/af21fe775bde0d6c3af4cbdc52e0cbe4/227da40456c2f797-6d/s2048x3072/2ae52b3a684727a7ace299d01dc5d94c5534a3da.pnj" alt="DIVIDER" width="300" height="500">
 
 𝗦𝗧𝗔𝗥 / 𝗦𝗘𝗩𝗘𝗡 ┆ 𝗛𝗘/𝗜𝗧/𝗦𝗛𝗘 
 
