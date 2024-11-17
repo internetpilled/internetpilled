@@ -13,6 +13,13 @@
 
  𝗙𝗜𝗡𝗗 𝗠𝗘 𝗡𝗘𝗔𝗥 𝗧𝗛𝗘 𝗜𝗡𝗗𝗜𝗚𝗢 𝗣𝗔𝗥𝗞, 𝗢𝗦𝗖 𝗢𝗥 𝗥𝗢𝗕𝗟𝗢𝗫 𝗔𝗥𝗘𝗔 !!! ![MEOW](https://64.media.tumblr.com/3880f3927854174c150920828fbfc903/af5d09d7c42bd261-2b/s75x75_c1/33ffb1dd8b84d2b551d545d20a8581c1c4318691.gifv)
 
+
+[ 𝗗𝗡𝗜 ] ; **𝗦𝗵𝗲𝗹𝗹𝘃𝗶𝘀𝗶𝗼𝗻 𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀**, 𝗱𝘀𝗺𝗽 𝗳𝗮𝗻𝘀, 𝘇𝗶𝗼𝗻𝗶𝘀𝘁𝘀, 𝘂𝗻𝗱𝗲𝗿 𝟭𝟰,
+𝗽𝗿𝗼/𝗱𝗮𝗿𝗸/𝗰𝗼𝗺 𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀, 𝗺𝗼𝗼𝗻𝗳𝗹𝗼𝘄𝗲𝗿 𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀, 𝘀𝘂𝗽𝗽𝗼𝗿𝘁 𝗽𝗿𝗼𝗯𝗹𝗲𝗺𝗮𝘁𝗶𝗰 𝗰𝗿𝗲𝗮𝘁𝗼𝗿𝘀
+
+
+(𝙖𝙨𝙞𝙙𝙚 𝙛𝙧𝙤𝙢 𝘿𝙉𝙄 𝙡𝙞𝙨𝙩 𝙖𝙣𝙮𝙤𝙣𝙚 𝙞𝙨 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 !)
+
 <img src="https://64.media.tumblr.com/394334a1a2c2942bd6d5817b109024ed/bea64afddfa4f591-9b/s100x200/14839edb444f90c35c423b295f7d76b0266807dc.pnj" width="160" height="95"> <img src="https://64.media.tumblr.com/84996911d956396f92289d31838eb36b/bea64afddfa4f591-74/s100x200/50ef8cc4dd97560490141b8e1289cf9ccfd6c790.pnj" width="160" height="95"> 
 
 <img src="https://64.media.tumblr.com/ffebab3be0df9d08ee0f8569974034dd/bea64afddfa4f591-52/s100x200/4f08c88ff7bd42cdb8e39b151ef2499de5daa92e.pnj" width="160" height="95"> <img src="https://64.media.tumblr.com/0321f771159e177bcfe1afa880f16fc0/bea64afddfa4f591-70/s100x200/36316053889cd1dedde2b9b31cb1df80403c7fb9.pnj" width="160" height="95"> 
