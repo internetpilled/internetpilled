@@ -2,7 +2,7 @@
 
  <img src="https://64.media.tumblr.com/43b50aad5aa6a4d1bbc299c3cb08128d/24c93e99f682d05d-6e/s400x600/cd7892ca4f97466fa5f09a30247de6243d582466.pnj" alt="DIVIDER" width="403" height="46">
 
-𝗦𝗧𝗔𝗥 / 𝗦𝗘𝗩𝗘𝗡 ┆ 𝗛𝗘/𝗜𝗧/𝗦𝗛𝗘 ![](https://64.media.tumblr.com/d6d10db160915a43250f36b3f502b7d2/a37b066fbd53f8a4-6e/s75x75_c1/b287aaf6bafec60532da8e448ab896c6bcea09f2.gifv)
+𝗦𝗧𝗔𝗥 / 𝗖𝗟𝗢𝗩𝗘𝗥 ┆ 𝗛𝗘/𝗜𝗧/𝗦𝗛𝗘 ![](https://64.media.tumblr.com/d6d10db160915a43250f36b3f502b7d2/a37b066fbd53f8a4-6e/s75x75_c1/b287aaf6bafec60532da8e448ab896c6bcea09f2.gifv)
 
  ✧₊⁺ 𝟭𝟴 | 𝗗𝗫'𝗗 𝗗𝗜𝗗 𝗦𝗬𝗦𝗧𝗘𝗠 ![](https://64.media.tumblr.com/41999894423d101c6c259f98d9026479/af5d09d7c42bd261-10/s75x75_c1/784bc83a253ef7c95ed78ee66bd38876ce588969.gifv) ꒰ 𝗔𝘀𝗸 𝗳𝗼𝗿 𝗳𝗿𝗼𝗻𝘁 𝗼𝗿 𝗰𝗵𝗲𝗰𝗸 𝗴𝗶𝘁𝗵𝘂𝗯 𝘀𝘁𝗮𝘁𝘂𝘀 ! <𝟯 ꒱ 
  
