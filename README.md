@@ -1,6 +1,6 @@
 ❝ 𝗜 𝘄𝗶𝘀𝗵 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗽𝗼𝘄𝗲𝗿 𝘁𝗼 𝗸𝗲𝗲𝗽 𝗦𝗶𝗺𝗼𝗻 𝘀𝗮𝗳𝗲. ❞ ![](https://64.media.tumblr.com/5710882b3250f2bb029694ae0df44448/a37b066fbd53f8a4-72/s75x75_c1/aae23f58db07535dc7c846e1e9dae6d6ac012236.gifv)
 
- <img src="https://64.media.tumblr.com/43b50aad5aa6a4d1bbc299c3cb08128d/24c93e99f682d05d-6e/s400x600/cd7892ca4f97466fa5f09a30247de6243d582466.pnj" alt="DIVIDER" width="403" height="46">
+ <img src="https://64.media.tumblr.com/e87b58cd969281774a08d2b09831f330/254bdc499010e0ec-16/s540x810/277e5b5247d325d4b7a563775224d7f30f9c692a.gifv" alt="DIVIDER" width="450" height="160">
 
 𝗦𝗧𝗔𝗥 / 𝗖𝗟𝗢𝗩𝗘𝗥 ┆ 𝗛𝗘/𝗜𝗧/𝗦𝗛𝗘 ![](https://64.media.tumblr.com/d6d10db160915a43250f36b3f502b7d2/a37b066fbd53f8a4-6e/s75x75_c1/b287aaf6bafec60532da8e448ab896c6bcea09f2.gifv)
 
@@ -20,8 +20,8 @@
 
 (𝙖𝙨𝙞𝙙𝙚 𝙛𝙧𝙤𝙢 𝘿𝙉𝙄 𝙡𝙞𝙨𝙩 𝙖𝙣𝙮𝙤𝙣𝙚 𝙞𝙨 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 !)
 
-<img src="https://64.media.tumblr.com/53c5b1cc72588ce5505fa6445064096f/4fe679c114341a17-84/s100x200/d159eb2d1573c6ea2d7ad2d5e5a660368cd56d06.pnj" width="160" height="95"> <img src="https://64.media.tumblr.com/fa90792eb8c617ae8440b2d73ac1a9fd/4fe679c114341a17-cc/s250x400/45e4e931eb3a18a35db11560ca71ffe1011809d6.pnj" width="160" height="95"> 
+<img src="https://64.media.tumblr.com/6fa929581e38aded4d69d09c529ff121/e102683c853ef8d0-e0/s100x200/6b2dacdb863d7e54f18df7014885d6ff11f21a1f.gifv" width="160" height="95"> <img src="https://64.media.tumblr.com/fa90792eb8c617ae8440b2d73ac1a9fd/4fe679c114341a17-cc/s250x400/45e4e931eb3a18a35db11560ca71ffe1011809d6.pnj" width="160" height="95"> 
 
-<img src="https://64.media.tumblr.com/104579fe2e09fb50611d84fe49615da2/4fe679c114341a17-06/s100x200/70de8c683dbfb233512efe36adfb93024835b3e7.pnj" width="160" height="95"> <img src="https://64.media.tumblr.com/ab2029476c4aff73c2a9e5a202a9edf0/4fe679c114341a17-5c/s100x200/a3ca47145ab1c9620800499a4c2bbc468943e685.pnj" width="160" height="95"> 
+<img src="https://64.media.tumblr.com/104579fe2e09fb50611d84fe49615da2/4fe679c114341a17-06/s100x200/70de8c683dbfb233512efe36adfb93024835b3e7.pnj" width="160" height="95"> <img src="https://64.media.tumblr.com/fda4a58f47adec3f2fcf3ceb5f5b1597/e102683c853ef8d0-c8/s100x200/a035e318f1eb8bc00ca0cd5768e5f25df0670df9.gifv" width="160" height="95"> 
 
-<img src="https://64.media.tumblr.com/f77687961da8e3374a8129fab66b493d/24c93e99f682d05d-a8/s400x600/9710df0914fbeaf70b825fd84c8e7c3c75a67e3c.pnj" alt="DIVIDER" width="403" height="46">
+<img src="https://64.media.tumblr.com/bcca9c4fc69854166fd0c5e92c93cc0f/254bdc499010e0ec-ae/s400x600/7863f899f297a646b974f5fb28052870adc19b56.gifv" alt="DIVIDER" width="450" height="160">
