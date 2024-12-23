@@ -1,4 +1,4 @@
-❝ 𝗜 𝘄𝗶𝘀𝗵 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗽𝗼𝘄𝗲𝗿 𝘁𝗼 𝗸𝗲𝗲𝗽 𝗦𝗶𝗺𝗼𝗻 𝘀𝗮𝗳𝗲. ❞ ![](https://64.media.tumblr.com/5710882b3250f2bb029694ae0df44448/a37b066fbd53f8a4-72/s75x75_c1/aae23f58db07535dc7c846e1e9dae6d6ac012236.gifv)
+![](https://64.media.tumblr.com/cb47d64a75351de26653e2f089473383/b572a179094d603f-60/s75x75_c1/bde403e8089e0c0990fbcdff9e22470d225fdcce.gifv) ❝ 𝗜 𝗵𝗮𝘃𝗲 𝘁𝗼 𝗯𝗲𝗹𝗶𝗲𝘃𝗲 𝗼𝘂𝗿 𝘄𝗼𝗿𝘀𝘁 𝗺𝗼𝗺𝗲𝗻𝘁𝘀 𝗱𝗼𝗻'𝘁 𝗺𝗮𝗸𝗲 𝘂𝘀 𝗺𝗼𝗻𝘀𝘁𝗲𝗿𝘀. ❞ ![](https://64.media.tumblr.com/92fd18009bd13476af3092e52f19a89c/b572a179094d603f-ff/s75x75_c1/c966e7f09da117c19b82e763d57a25d7d3d86349.gifv)
 
  <img src="https://64.media.tumblr.com/e87b58cd969281774a08d2b09831f330/254bdc499010e0ec-16/s540x810/277e5b5247d325d4b7a563775224d7f30f9c692a.gifv" alt="DIVIDER" width="450" height="160">
 
@@ -6,7 +6,7 @@
 
  ✧₊⁺ 𝟭𝟴 | 𝗗𝗫'𝗗 𝗗𝗜𝗗 𝗦𝗬𝗦𝗧𝗘𝗠 ![](https://64.media.tumblr.com/41999894423d101c6c259f98d9026479/af5d09d7c42bd261-10/s75x75_c1/784bc83a253ef7c95ed78ee66bd38876ce588969.gifv) ꒰ 𝗔𝘀𝗸 𝗳𝗼𝗿 𝗳𝗿𝗼𝗻𝘁 𝗼𝗿 𝗰𝗵𝗲𝗰𝗸 𝗴𝗶𝘁𝗵𝘂𝗯 𝘀𝘁𝗮𝘁𝘂𝘀 ! <𝟯 ꒱ 
  
-![](https://64.media.tumblr.com/42ef482a3902584584104fffb0d36d5d/86c54e92263b9625-6c/s75x75_c1/dc7d69cb815484e2b0a9fe89886bdc17f26a0a24.gifv) 𝗨𝗦𝗨𝗔𝗟𝗟𝗬 𝗢𝗙𝗙𝗧𝗔𝗕 𝗔𝗡𝗗 𝗢𝗥 𝗕𝗨𝗦𝗬 𝗪𝗜𝗧𝗛 𝗢𝗧𝗛𝗘𝗥 𝗧𝗛𝗜𝗡𝗚𝗦 𝗢𝗙𝗙 𝗢𝗙 𝗣𝗢𝗡𝗬𝗧𝗢𝗪𝗡! 𝗣𝗟𝗘𝗔𝗦𝗘 𝗕𝗘 𝗣𝗔𝗜𝗧𝗘𝗡𝗧!! ![](https://64.media.tumblr.com/a0b49f67df3bba42da38c187d5ec2c8d/dde504567edf1762-2b/s75x75_c1/e60893a40a8559eced7b54e88d489de72c4aa84f.gifv)
+![](https://64.media.tumblr.com/a8e75989fb17d180a080d6821b832853/d1bd9a001994ae40-09/s75x75_c1/5b77773025e51c621b41b65fd28bd4241298452a.gifv) 𝗨𝗦𝗨𝗔𝗟𝗟𝗬 𝗢𝗙𝗙𝗧𝗔𝗕 𝗔𝗡𝗗 𝗢𝗥 𝗕𝗨𝗦𝗬 𝗪𝗜𝗧𝗛 𝗢𝗧𝗛𝗘𝗥 𝗧𝗛𝗜𝗡𝗚𝗦 𝗢𝗙𝗙 𝗢𝗙 𝗣𝗢𝗡𝗬𝗧𝗢𝗪𝗡! 𝗣𝗟𝗘𝗔𝗦𝗘 𝗕𝗘 𝗣𝗔𝗜𝗧𝗘𝗡𝗧!! ![](https://64.media.tumblr.com/e5f29d2e5b1d4dc32a54bafdeb583d1e/2c0bb3b83ae22ac8-c8/s75x75_c1/1e93888dd3522ed97c6e6884834a3a3d7b2dd8f9.gifv)
 
 
 𝗖+𝗛 & 𝗪𝗛𝗜𝗦𝗣𝗘𝗥𝗦 𝗔𝗥𝗘 𝗙𝗜𝗡𝗘 !! ₊˙♡﹗˚ ༘ 
@@ -20,8 +20,8 @@
 
 (𝙖𝙨𝙞𝙙𝙚 𝙛𝙧𝙤𝙢 𝘿𝙉𝙄 𝙡𝙞𝙨𝙩 𝙖𝙣𝙮𝙤𝙣𝙚 𝙞𝙨 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 !)
 
-<img src="https://64.media.tumblr.com/6fa929581e38aded4d69d09c529ff121/e102683c853ef8d0-e0/s100x200/6b2dacdb863d7e54f18df7014885d6ff11f21a1f.gifv" width="160" height="95"> <img src="https://64.media.tumblr.com/fa90792eb8c617ae8440b2d73ac1a9fd/4fe679c114341a17-cc/s250x400/45e4e931eb3a18a35db11560ca71ffe1011809d6.pnj" width="160" height="95"> 
+<img src="https://64.media.tumblr.com/6fa929581e38aded4d69d09c529ff121/e102683c853ef8d0-e0/s100x200/6b2dacdb863d7e54f18df7014885d6ff11f21a1f.gifv" width="160" height="95"> <img src="https://64.media.tumblr.com/c5d21680b1ab453c3b6c814a6a7e2e8b/c56ebf55b06de9aa-d0/s100x200/c032e3d64c4a8c017a694ff135a66c0f1d527ec0.pnj" width="160" height="95"> 
 
-<img src="https://64.media.tumblr.com/104579fe2e09fb50611d84fe49615da2/4fe679c114341a17-06/s100x200/70de8c683dbfb233512efe36adfb93024835b3e7.pnj" width="160" height="95"> <img src="https://64.media.tumblr.com/fda4a58f47adec3f2fcf3ceb5f5b1597/e102683c853ef8d0-c8/s100x200/a035e318f1eb8bc00ca0cd5768e5f25df0670df9.gifv" width="160" height="95"> 
+<img src="https://64.media.tumblr.com/8a62ee74cc1be12302dd6cbc5a905c7f/c56ebf55b06de9aa-d6/s100x200/dff35377f4ca3cc563ad43ef884b1fd816a1d72a.pnj" width="160" height="95"> <img src="https://64.media.tumblr.com/fda4a58f47adec3f2fcf3ceb5f5b1597/e102683c853ef8d0-c8/s100x200/a035e318f1eb8bc00ca0cd5768e5f25df0670df9.gifv" width="160" height="95"> 
 
 <img src="https://64.media.tumblr.com/bcca9c4fc69854166fd0c5e92c93cc0f/254bdc499010e0ec-ae/s400x600/7863f899f297a646b974f5fb28052870adc19b56.gifv" alt="DIVIDER" width="450" height="160">
